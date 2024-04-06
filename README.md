@@ -1,8 +1,6 @@
-# Saranya Guruvayurappan
+# 🌟 Welcome to My Profile! 🌟
 
 👩‍💻 Passionate Computer Science Engineering student | 🚀 Software Developer | 🤖 Tech Enthusiast
-
-📞 +91 7708610230 | 📧 glsaranyaguru@gmail.com | 💼 [LinkedIn](linkedin.com/in/saranya-g-950069243) | 🌐 [GitHub](https://github.com/Saranya-gl)
 
 ---
 
